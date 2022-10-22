@@ -1,0 +1,1 @@
+I just saw the trailer and i think he is cool.
